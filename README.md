@@ -1,2 +1,2 @@
-# Estudio
+🌏🪽💌💸# Estudio
 cosas de frontend
